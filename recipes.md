@@ -76,7 +76,7 @@ Instructions:
 7. Serve meatballs and sauce over spaghetti.
 8. Add green onion for garinsh.
 
-### Grilled Chicken Sandwich
+### Grilled Chicken Sandwich 
 
 Ingredients:
 - 2 boneless, skinless chicken breasts
@@ -88,6 +88,10 @@ Ingredients:
 - Tomato
 - Mayonnaise
 
+Other: 
+- Ketchup 
+- Mustard 
+
 Instructions:
 1. Preheat grill to medium-high heat.
 2. Season chicken breasts with salt and pepper and drizzle with olive oil.
@@ -95,6 +99,7 @@ Instructions:
 4. Top each chicken breast with a slice of Swiss cheese and let melt.
 5. Toast hamburger buns on the grill.
 6. Assemble sandwiches with chicken, lettuce, tomato, and mayonnaise.
+7. Add Ketchup or Mustard of you like.
 
 ## Desserts
 ### Chocolate Chip Cookies
