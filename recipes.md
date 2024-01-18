@@ -59,15 +59,22 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- 1 whole bell peppers
+- Half onion
+- 1/4 cup green onion
 
 Instructions:
 1. Cook spaghetti according to package instructions.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
 3. Form mixture into meatballs.
-4. In a large skillet, brown meatballs over medium-high heat.
-5. Add spaghetti sauce to the skillet and bring to a simmer.
+4. In a different bowl, diced the bell pepper and onion.
+5. In an other bowl cut the green onion finely.
+6. In a large skillet, brown meatballs over medium-high heat.
+7. Add in the bell pepper and onion. Let it cook for 5 minutes.
+8. Add spaghetti sauce to the skillet and bring to a simmer.
 6. Reduce heat to low and let simmer for 10-15 minutes.
 7. Serve meatballs and sauce over spaghetti.
+8. Add green onion for garinsh.
 
 ### Grilled Chicken Sandwich
 
