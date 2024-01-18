@@ -120,3 +120,53 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Strawberry Cheesecake 
+
+Ingredients:
+
+Crust: 
+- 2 1/4 cups graham crackers crumbs
+- 3 tbsp sugar
+- 1/2 salted butter, melted 
+
+Filling:
+- 3 cup cream cheese, room temperture
+- 1 cup sugar
+- 3 tbsp all purporse flour
+- 3/4 cup sour cream, room temperture
+- 1 1/2 tbsp vanilla extract
+- 3 large eggs, room temperature 
+
+STRAWBERRY TOPPING
+- 1 1/2 cups sugar
+- 2 tbsp cornstarch
+- 1 1/2 cups pureed strawberries (from about 1 lb strawberries)
+- 1/2 tsp vanilla extract
+- 2 cups chopped strawberries
+
+WHIPPED CREAM
+- 1/2 cup heavy whipping cream, cold
+- 1/4 cup powdered sugar
+- 1/2 tsp vanilla extract
+
+Instructions
+1. Preheat oven to 325°F (163°C). Grease a 9×13 pan.
+2. Combine the crust ingredients in a small bowl. Press the mixture into the bottom of the prepared pan.
+3. Bake the crust for 10 minutes, then set aside to cool.
+4. Reduce the oven temperature to 300°F (148°C).
+5. In a large bowl, blend the cream cheese, sugar and flour on low speed until well completely combined and smooth. Be sure to use low speed to reduce the amount of air added to the batter, which can cause cracks. Scrape down the sides of the bowl.
+6. Add the sour cream and vanilla extract mix on low speed until well combined.
+7. Add eggs one at a time, mixing slowly to combine. Scrape down the sides of the bowl as needed to make sure everything is well combined.
+8. Pour the batter into the pan with the crust and spread evenly.
+9. Bake the cheesecake for 30 minutes.
+10. Turn off the oven and leave the cheesecake in the oven with the door closed for 20 minutes.
+11. Crack the door of the oven, with the cheesecake inside, for 15 minutes. This slow cooling process helps prevent the cheesecake from cracking.
+12. Put the cheesecake in the fridge to cool completely, 3-4 hours.
+13. To make the strawberry topping, combine the sugar and cornstarch in a large saucepan. Stir in the strawberry puree.
+14. Cook over medium heat, stir constantly until mixture thickens and come to a boil, about 15 to 20 minutes.
+15. Allow to boil for 1 1/2 minutes, then remove from heat.
+16. Stir in vanilla extract and chopped strawberries and allow to cool for about 15-20 minutes.
+17. Pour the topping over the cheesecake. You can add the sauce while the cheesecake is chilling and let it all cool together, or let the sauce cool on its own and add it to cheesecake before serving, or even add it as you cut slices. The topping will thicken as it cools.
+18. To make the whipped cream, add everything to a large mixer bowl and whip on high speed until stiff peaks form. Serve slices of the cheesecake with the whipped cream, if desired.
+
